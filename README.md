@@ -51,7 +51,7 @@ Non è un difetto è una virtù
 E non la fermerò mai più,
 
 [Korean/한국어]
-내 맘대로 자유롭게 살래 (Nae mamdaero jayurobge salrae)
+내 맘대로 자유롭게 살래 (Nae mamdaero jayuropge sallae)
 
 [Serbian/српски]
 Sad je Kraj, Sad je Kraj
